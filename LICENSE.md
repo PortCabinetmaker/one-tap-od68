@@ -1,4 +1,4 @@
-#  
+#  elite Scripts for one tap offers the most advanced one tap Script, with god mode and one-hit kill. Perfect for dominating any match.
 
 
 
